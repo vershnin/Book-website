@@ -99,6 +99,12 @@ This project is open-source and available under the [MIT License](https://www.go
 For any contact you can reach out through any channel available on the account
 
 -----
+![Image](https://github.com/user-attachments/assets/7d03dd73-fa8a-425b-8eec-9cc0aca45b10)
+![Image](https://github.com/user-attachments/assets/414374dc-48d6-44a1-939e-4bcd2badc66d)
+![Image](https://github.com/user-attachments/assets/cec3d6f5-a8f4-4c18-9edb-de8338ddaf2d)
+![Image](https://github.com/user-attachments/assets/d0542e37-722a-47da-8fd1-044976398865)
+
+-----
 
 For any questions or inquiries, please use the contact form on the page
 
